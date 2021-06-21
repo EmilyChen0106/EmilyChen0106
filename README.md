@@ -5,10 +5,10 @@
 - 💞️ I’m looking to collaborate on CartoonNetwork
 - 📫 Reach me by texting YoYoTv or my instagram
 
-|Birth:         | Linda Chien |
+|Birth:         | 1983.9.22  |
 | ------------- |:-------------:|
 | Nation:       | R.O.C    |
-| Real Name:    | 1983.9.22     |
+| Real Name:    | Linda Chien    |
 | Instagram:    | @butterfly092288     |
 
 -🦋🦋🌸🦋🦋🦋🌸🦋🦋🦋🦋🦋🌸🦋🦋🌸🦋🦋🦋🦋🌸🦋🦋🌸
